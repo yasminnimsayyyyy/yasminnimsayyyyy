@@ -1,4 +1,4 @@
 oioi, sou a Yasmin
-Sou aluna de pemsamento computacional
+Sou aluna de pensamento computacional
 Gosto de ler
 <3  
